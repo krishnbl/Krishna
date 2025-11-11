@@ -28,7 +28,7 @@ I enjoy turning raw data into clear, actionable business insights and visuals.
 ### 💼 Experience  
 
 **Planet Nextgen Technology** — *Data Analytics & Reporting Intern*  
-📆 **July 2025 – Oct 2025**  
+📆 **July 2025 – Present**  
 
 **AI Variant** — *Power BI Intern*  
 📆 **Sept 2024 – Dec 2024**  
