@@ -26,9 +26,11 @@ I enjoy turning raw data into clear, actionable business insights and visuals.
 ---
 
 ### 💼 Experience  
+**Weavings Manpower Solution** --Analyst Engineer
+March 2026 - Present**
 
 **Planet Nextgen Technology** — *Data Analytics & Reporting Intern*  
-📆 **July 2025 – Present**  
+📆 **July 2025 – Feb 2026 
 
 **AI Variant** — *Power BI Intern*  
 📆 **Sept 2024 – Dec 2024**  
